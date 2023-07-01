@@ -1,1 +1,0 @@
-# aynaxz.github.io
